@@ -1,5 +1,5 @@
 ## eu sou a ketlyn🖤🩰⛪ ##
-- estudante 
+- estudante de javascritp
 - católica
 - cacheada
 - amo chuva 
